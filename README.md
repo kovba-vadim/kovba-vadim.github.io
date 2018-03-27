@@ -1,1 +1,0 @@
-# kovba-vadim.github.io
